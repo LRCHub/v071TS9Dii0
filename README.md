@@ -1,4 +1,4 @@
-# キタニタツヤ – かすかなはな - Kasuka na Hana- (OP Theme to Hell's Paradise: Jigokuraku Season 2)
+# キタニタツヤ – かすかなはな - Kasuka na Hana- (OP Theme to Hell's Paradise: Jigokuraku Season 2)（feat. BABYMETAL）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
